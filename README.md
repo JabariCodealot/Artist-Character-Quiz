@@ -1,1 +1,0 @@
-# Artist-Character-Quiz
